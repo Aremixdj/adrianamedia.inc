@@ -40,10 +40,4 @@ Expert solutions for office buildings, factories, and large-scale commercial pro
 Integration of smart thermostats and automation for complete climate control, allowing you to monitor and adjust settings remotely.  
 
 
-### **Contact Us**  
-
-📧 Email: mattlawless298@gmail.com  
-📞 Phone: 083 277 0895  
-
-© 2025 #aircon.inc - All Rights Reserved  
 
