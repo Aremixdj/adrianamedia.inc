@@ -5,7 +5,7 @@
 **#aircon.inc - HVAC & Air Conditioning Experts**  
 
 #### **Welcome to #aircon.inc**  
-Expert HVAC & Air Conditioning Solutions by Matthew Laws  
+Expert HVAC & Air Conditioning Solutions by Adriana Venter
 
 ---
 
