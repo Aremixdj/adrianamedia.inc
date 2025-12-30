@@ -39,5 +39,7 @@ Expert solutions for office buildings, factories, and large-scale commercial pro
 #### **Smart Climate Control**  
 Integration of smart thermostats and automation for complete climate control, allowing you to monitor and adjust settings remotely.  
 
+Adriana Venter
+clrv.riana.entity@gmail.com 27 72 741 6749 
 
 
